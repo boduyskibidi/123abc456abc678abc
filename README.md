@@ -1,1 +1,1 @@
-I am Lionel Messi from Portugal
+Cần Bypass Ib Tele : nominomorl
