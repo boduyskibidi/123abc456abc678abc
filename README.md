@@ -1,1 +1,2 @@
-Cần Bypass Ib Tele : nominomorl
+ᴄᴀ̂̀ɴ ʙʏᴘᴀꜱꜱ ɪʙ ᴛᴇʟᴇ : Nonoonmi
+
