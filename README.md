@@ -1,2 +1,2 @@
-ᴄᴀ̂̀ɴ ʙʏᴘᴀꜱꜱ ɪʙ ᴛᴇʟᴇ : Nonoonmi_bot
+Telegram : Nonoonmi_bot
 
